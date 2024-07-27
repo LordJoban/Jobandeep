@@ -1,3 +1,9 @@
+## Activity report Induction Program 2024. 
+I have successfully completed the "excel for beginners: ciyrse offered by Great Learning Academy.
+Certificate link-<iframe src="https://www.linkedin.com/embed/feed/update/urn:li:share:7222975716097769473" height="530" width="504" frameborder="0" allowfullscreen="" title="Embedded post"></iframe>
+
+
+
 I am Jobandeep Singh 
 > # - **In this repository I will share my experiance in Guru Nanak Dev Engineering College Ludhaina about Induction Programme**
 ## Report of Student Induction Program 2024. 
