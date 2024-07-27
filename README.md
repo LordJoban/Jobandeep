@@ -6,7 +6,7 @@ Certificate link-https://www.linkedin.com/posts/jobandeep-singh-4025172a6_1000-f
 
 
 
-I am Jobandeep Singh 
+ 
 > # - **In this repository I will share my experiance in Guru Nanak Dev Engineering College Ludhaina about Induction Programme**
 ## Report of Student Induction Program 2024. 
 
