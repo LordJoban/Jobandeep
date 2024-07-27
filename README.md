@@ -31,3 +31,12 @@ Certificate link-https://www.linkedin.com/posts/jobandeep-singh-4025172a6_1000-f
 |19/07/2024|Er.Kanwardeep Kalra| Madam taught us about corporate society and its different view points |
 |19/07/2024| Mr.Jaswinder Singh | Sir made our day with the most engaging session of science and made learning fun |
 |19/07/2024| **Departmental** | **Visit** |
+|21/07/2024|NCC AIR|Interaction|
+|22/07/2024|UHV Class Dept of Applied Sci|Human values and mindset|
+|22/07/2024|Mathematics Class|Differential Equations|
+|23/07/2024|Gym Trainer Auditorium|Physical Fitness|
+|23/07/2024|Causmic Club|Benefits and reasons|
+|23/07/2024|Mr Rakesh Kumar|mindset|
+|24/07/2024|Peer interaction Phyics Basics and English Test|
+|24/07/2024|Auditorium|Entrepreneurship|
+|26/07/2024|Auditorium|Maths Test|
